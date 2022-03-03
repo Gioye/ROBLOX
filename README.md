@@ -1,3 +1,3 @@
 # ROBLOX
 roblox is a game.
-the full text is in ROBLOX.edu.RTF.
+the full text is on ROBLOX.edu.RTF.
